@@ -29,70 +29,40 @@ book details
 **Book Description:**
 
 
-**Get the Monkey Off Your Back**
+**100 Recpies To Get the Monkey Off Your Back**
 
-Food is a drug. Break the shackles of addiction and learn to eat air!
-In this detailed guide, Dr. Robert Jones, MD, PhD, DDS, ODD gives you
-the practical, step-by-step advice you need to transition to the 
-air-only diet.
+Do you struggle to eat air? Do you wish you could follow me to the next, higher plane of human evolution? In this companion volume to Food-Free at Last: How I Learned to Eat Air, I, Dr. Robert Jones, MD, PhD, DDS, ODD, break down my Twelve Steps to Food Freedom™® into 100 bite-sized pieces.
 
+**Common Questions About the Air-Only Recipes:**
 
-**Common Questions About the Air-Only Diet:**
+*Q: Why a companion volume? Why now?*
 
-*Eating air? Are you crazy?*
+A: The American people groan under the weight of excess body fat. They cry out for freedom. Freedom from food! That's why we must root out sleeper cells of food terrorists within our borders, violent extremists who threaten our ability to eat air and doom us to an evolutionary dead end!
 
-I am a medical doctor with more than forty years of clinical
-experience. An Obesity Epidemic is sweeping across our great nation.
-Eating air is the answer.
+*Q: Should fat people be put in Fat Camp?*
 
-*Isn’t there a risk of malnutrition?*
+A: Weren't you paying attention to what I just said? Fat people are food terrorists. We must preventatively detain them before they spread their contagion. Make no mistake: Obesity is an infectious disease. A disease that causes terrorism. I intend to wipe that disease off the face of the earth.
 
-Not at all! Air contains all the vitamins, minerals, electrolytes and
-essential amino acids your body needs.
+*Q: Some people say you're a tyrant worse than Stalin and Hitler put together. How do you respond that accusation?*
 
-*A friend of mine went on the air-only diet and starved to death. Will I
-die too?*
+A: Security! Get me the Skinny Service. Put this man in Fat Camp. Yes. For his own good.
 
-Lies, lies and more lies! Propaganda spread by the agro-business special
-interests that run Washington. They will do anything to keep you down,
-in ignorance of the truth!
+**300 Million Sceptics Can't Be Right!**
 
+Every day the hate mail pours in:
 
-**A Million Dieters Can’t be Wrong!**
+*"Darn you to heck, Dr. Robert Jones, MD, PhD, DDS, ODD! To heck, I say! Because of you, my family have all died in Fat Camp. They weren't even that fat! Darn, darn, darn you!!!"*
 
-Every day the emails pour in:
+*"Ask not for whom the bulldozer toils. It toils for thee." —Ernest Hemingway's obese great-great-grandson*
 
-*“Thank you, Dr. Robert Jones, MD, PhD, DDS, ODD! Oh, thank you! I’ve
-eaten nothing but air for the last two months and I’ve lost eight 
-hundred pounds! My husband says I’ll make a fine skeleton! I can’t 
-wait!!!”*
+*"Dear Dr. Jones, You are hereby charged with crimes against humanity. Please turn yourself into the Hague for trial, or we shall be forced to sputter incoherently while you ignore our decree."* —International War Crimes Tribunal, The Hague
 
-*“Damn this air is tasty.”*
+Also in This Companion Volume:
 
-*“Dear Dr. Jones, What a discovery! You make Einstein look like an 
-ignoramus. We hereby award you the Prizes for Medicine, Chemistry and 
-Peace.”* —the Nobel Committee
-
-
-**Also in This Groundbreaking Diet Book:**
-
-* Lunge and Chomp — *Learn the Secrets of Air-Eating Technique!*
-
-* The Twelve Steps to Food Freedom — *Anyone Can Do It!*
-
-* The Hidden Menace in Our Society That Can Prevent You From Eating 
-Air — *and How We as a Nation Can Overcome It!*
-
+* Purge & Scourge™® — *Learn the Secret to Feeling Full on the Air-only Diet!*
+* 100 Recipes, 100 days — *100 Baby Steps to Food Freedom!*
+* The Truth About Prana — *It's Not What You Think!*
 
 **About the Author**
 
-An acclaimed pioneer in the field of Airitarianism, Dr. Robert Jones, 
-MD, PhD, DDS, ODD has dedicated his life to freeing food-eaters from 
-slavery to addictive caloric substances. That’s why he wrote 
-*Food-Free at Last*—to expose the truth the agro-business special 
-interests don’t want you to know. And that’s why he’s 
-running for President in 2013. It’s time to put this country on a 
-diet—the air-only diet, the only diet proven to work. It’s time
-to cure our great nation of the Obesity Epidemic sweeping from coast to
-coast. It’s time to end the oligarchy’s influence on our political
-process and bring true freedom back to America. Go the Power of Air!
+An acclaimed pioneer in the field of Airitarianism, Dr. Robert Jones, MD, PhD, DDS, ODD has dedicated his life to freeing food-eaters from slavery to addictive caloric substances. That's why you elected him President by a landslide. And that's why he banned food. It's time to put aside our cave man cravings and advance to the next stage of human evolution. It's time to cure out great nation of the Obesity Epidemic sweeping from coast to cast. It's time to root out sleeper cells of food terrorists from the homeland, and bring true freedom back to America. Go the Power of Air! 
