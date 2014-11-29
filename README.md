@@ -1,7 +1,7 @@
-![Food-Free at Last: How I Learned to Eat Air cover](food-free-at-last-cover.jpg)
+![Food-Free at Last: 100 Air-Only Recipes cover](food-free-at-last-2-cover.jpg)
 
-food-free-at-last
-=================
+food-free-at-last-2
+===================
 
 Welcome to my series of GitHub novels.
 
@@ -20,7 +20,7 @@ See HOWTO for conversion instructions.
 book details
 ============
 
-**Title:** *Food-Free at Last: How I Learned to Eat Air*
+**Title:** *Food-Free at Last: 100 Air-Only Recipes*
 
 **Genre:** Political Satire
 
